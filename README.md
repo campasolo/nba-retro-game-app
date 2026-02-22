@@ -1,6 +1,6 @@
 C.P.I.F.P. LOS ENLACES
 Grado Superior de Desarrollo de Aplicaciones Multiplatarforma
-2º Curso Verpertino 
+2º Curso Verpertino (Curso 2025-26)
 Módulo de Desarrollo de Interfaces
 Práctica Final
 
